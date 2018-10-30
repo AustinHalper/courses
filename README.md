@@ -1,5 +1,7 @@
 # courses
 
+Halper, Austin October 19, 2018 11:37PM
+
 Cowell, Jevon October 29, 2018 5:11 PM
 
 Bochan, David October 29, 2018 1:05 AM
