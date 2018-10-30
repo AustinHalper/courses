@@ -1,6 +1,6 @@
 # courses
 
-Halper, Austin October 19, 2018 11:37PM
+Halper, Austin October 29, 2018 11:48 PM
 
 Cowell, Jevon October 29, 2018 5:11 PM
 
